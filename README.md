@@ -1,0 +1,1 @@
+# Lopez_1224122-_06042025_Formatodetexto
